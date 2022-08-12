@@ -1,4 +1,8 @@
-#### THIS PAGE IS BEING MONITORED BY SEVERAL DEPARTMENTS AS PART OF A FEDERAL BANK AND [SECURITIES FRAUD INVESTIGATION.](https://www.youtube.com/watch?v=0EnOhpMRgwg)
+#### THIS PAGE IS BEING MONITORED BY SEVERAL DEPARTMENTS AS PART OF A FEDERAL BANK AND [SECURITIES](https://www.youtube.com/watch?v=0EnOhpMRgwg)
+
+here is my biography in case you needed more information, its already publicly available.
+https://en.everybodywiki.com/Maritime_Capital_Partners_LP
+
 
 [WILSON-ELSER-STATEFARM-SULLIVAN-ZUCKER_FEDERAL-USE-AND-DISTRIBUTION-ONLY](https://saaze2311prdsra.blob.core.windows.net/clean/63e7e5c65409ed1182e5000d3a98e815/Re%20[location]%201253%20EST%20AUGUST%204TH%20CONFIRMATION.pdf)
 
