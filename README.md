@@ -1,5 +1,92 @@
 #### THIS PAGE IS BEING MONITORED BY SEVERAL DEPARTMENTS AS PART OF A FEDERAL BANK AND [SECURITIES FRAUD INVESTIGATION.](https://www.youtube.com/watch?v=0EnOhpMRgwg)
 
+TARGETS, let me know what you find - happy hunting!
+
+This is where you will find yourself, in case you needed an INSIDER look?
+> that listserv they made special for me?
+
+https://www.bop.gov/inmateloc/
+
+#sleepwalker.
+
+On 8/17/2022 4:06 PM, B D2022 wrote:
+> thank you very much
+>
+> no bcc here.
+> see also: columbia ACHA roster in 2019 for additional subjects, may or may not have been convined by the STONEHEARST ASYLUM TO ENJOIN THEMSELVES TO EXTEND PROTECTION UNDER THE BUILDING THAT GOT CHAINED CLOSED, and I PERSONALLY DUCT TAPED IT SHUT, WITH RED TAPE.
+>
+> Thank you for that BTW.
+>
+> -------- Forwarded Message --------
+> Subject: 	Fwd: Fwd: SEC. 1102. TAMPERING WITH A RECORD OR OTHERWISE IMPEDING AN OFFICIAL PROCEEDING.
+> Date: 	Wed, 17 Aug 2022 16:05:54 -0500
+> From: 	B D2022 <ms60710444266@yahoo.com>
+> To: 	CISA-GatewayHelpDesk@cisa.dhs.gov <CISA-GatewayHelpDesk@cisa.dhs.gov>
+> CC: 	edincer54@gmail.com, hidincer@aol.com <hidincer@aol.com>, slaskowitz@ingramllp.com <slaskowitz@ingramllp.com>, Ashley V. Humphries <ashley.humphries@wilsonelser.com>, Paul Regan <legal@mskyline.com>, +15168841083@tmomail.net <+15168841083@tmomail.net>, +15168841084@tmomail.net <+15168841084@tmomail.net>, +13478801899@tmomail.net <+13478801899@tmomail.net>, +15163224896@tmomail.net <+15163224896@tmomail.net>
+>
+>
+> Yep. CHAINED CLOSED, not sure for how long.
+>
+>
+> -------- Forwarded Message --------
+> Subject: 	Fwd: SEC. 1102. TAMPERING WITH A RECORD OR OTHERWISE IMPEDING AN OFFICIAL PROCEEDING.
+> Date: 	Wed, 17 Aug 2022 16:04:13 -0500
+> From: 	B D2022 <ms60710444266@yahoo.com>
+> To: 	helpdesk@leo.gov <helpdesk@leo.gov>, helpdesk@listserv.leo.gov <helpdesk@listserv.leo.gov>
+> CC: 	114PCTDVO@NYPD.ORG <114pctdvo@nypd.org>, RISC@IC.FBI.GOV <RISC@IC.FBI.GOV>
+>
+>
+> no bcc here.
+> see also: columbia ACHA roster in 2019 for additional subjects, may or may not have been convined by the STONEHEARST ASYLUM TO ENJOIN THEMSELVES TO EXTEND PROTECTION UNDER THE BUILDING THAT GOT CHAINED CLOSED, and I PERSONALLY DUCT TAPED IT SHUT, WITH RED TAPE.
+>
+> Thank you for that BTW.
+>
+>
+> -------- Forwarded Message --------
+> Subject: 	SEC. 1102. TAMPERING WITH A RECORD OR OTHERWISE IMPEDING AN OFFICIAL PROCEEDING.
+> Date: 	Wed, 17 Aug 2022 16:01:56 -0500
+> From: 	B D2022 <ms60710444266@yahoo.com>
+> To: 	RISC@IC.FBI.GOV <RISC@IC.FBI.GOV>
+>
+>
+>
+> SEC. 1102. TAMPERING WITH A RECORD OR OTHERWISE IMPEDING AN OFFICIAL PROCEEDING.
+> Section 1512 of title 18, United States Code, is amended—
+> (1) by redesignating subsections (c) through (i) as subsections
+> (d) through (j), respectively; and
+> (2) by inserting after subsection (b) the following new subsection:
+> ‘‘(c) Whoever corruptly—
+> ‘‘(1) alters, destroys, mutilates, or conceals a record, document,
+> or other object, or attempts to do so, with the intent
+> to impair the object’s integrity or availability for use in an
+> official proceeding; or
+> ‘‘(2) otherwise obstructs, influences, or impedes any official
+> proceeding, or attempts to do so,
+> shall be fined under this title or imprisoned not more than 20
+> years, or both.’’.
+>
+> SEC. 1107. RETALIATION AGAINST INFORMANTS.
+> (a) IN GENERAL.—Section 1513 of title 18, United States Code,
+> is amended by adding at the end the following:
+> ‘‘(e) Whoever knowingly, with the intent to retaliate, takes
+> any action harmful to any person, including interference with the
+> lawful employment or livelihood of any person, for providing to
+> a law enforcement officer any truthful information relating to the
+> commission or possible commission of any Federal offense, shall
+> be fined under this title or imprisoned not more than 10 years,
+> or both.’’.
+> Approved July 30, 2002.
+> https://github.com/BSCPGROUPHOLDINGSLLC/BBO-IC3-HIT/blob/main/README.md
+>
+> -------- Forwarded Message --------
+> Subject: 	Re: SEC. 1106. INCREASED CRIMINAL PENALTIES UNDER SECURITIES,EXCHANGE ACT OF 1934.
+> Date: 	Wed, 17 Aug 2022 15:57:04 -0500
+> From: 	B D2022 <ms60710444266@yahoo.com>
+> To: 	+13478801899@tmomail.net <+13478801899@tmomail.net>, administration@mskyline.com <ADMINISTRATION@MSKYLINE.COM>, administrator@mskyline.com <administrator@mskyline.com>, AREYNOSO@mskyline.com <AREYNOSO@mskyline.com>, askLaurie@mskyline.com <askLaurie@mskyline.com>, cbloom@mskyline.com <cbloom@mskyline.com>, DZUCKER@MSKYLINE.COM <DZUCKER@MSKYLINE.COM>, EDevine@mskyline.com <EDevine@mskyline.com>, JOSEPH GIAMBOI <jgiamboi@mskyline.com>, joseph.giamboi@brooklaw.edu <joseph.giamboi@brooklaw.edu>, LBRITTON@MSKYLINE.COM <LBRITTON@MSKYLINE.COM>, leftbank@mskylinerentals.com <leftbank@mskylinerentals.com>, Paul Regan <legal@mskyline.com>, ANA LOPEZ <legalasst@mskyline.com>, LAURIE ZUCKER <lzucker@mskyline.com>, MGMTADMIN@mskyline.com <MGMTADMIN@mskyline.com>, UNKNOWN MANHATTAN SKYLINE CORP. <MVredjian@mskyline.com>, PAUL REGAN <PREGAN@MSKYLINE.COM>, SHARI LASKOWITZ <slaskowitz@mskyline.com>, SHIKENA MELTON <smelton@mskyline.com>, SULLIVANMEWS@MSKYLINERENTALS.COM <SULLIVANMEWS@MSKYLINERENTALS.COM>, Super@sullivanmews.com <Super@sullivanmews.com>, THOMAS ESCHMANN <TEschmann@mskyline.com>, FILER 400842/2020 isaac@shermantax.com <isaac@shermantax.com>, Stephen O'Connell <sgo2107@columbia.edu>, Amber Griffiths <ag2943@columbia.edu>, Marlyn Delva <mmt22@columbia.edu>, Alan J. Morrison <ajm157@columbia.edu>, wmckenzi@nycourts.gov <wmckenzi@nycourts.gov>, Sara E. Ede <see2119@columbia.edu>, LEWISOHN HALL COUNSELOR <jac2381@columbia.edu>, Dean's Discipline - SCCS <conduct-admin@columbia.edu>, dmf2189@columbia.edu <dmf2189@columbia.edu>, FundLegalGroup@cohenandsteers.com <FundLegalGroup@cohenandsteers.com>, ajbrandon@gmail.com <ajbrandon@gmail.com>, cweiss@ingramllp.com <cweiss@ingramllp.com>, Janna.Underwood@STATEFARM.COM <Janna.Underwood@STATEFARM.COM>, Ashley V. Humphries <ashley.humphries@wilsonelser.com>, RICKI ROER <ricki.roer@wilsonelser.com>, Amy Hanrahan <amy.hanrahan@wilsonelser.com>, ANNE BRANDON [CALIFORNIA <anne@thehighlandpartners.com>, travelerresolutions@expediagroup.com <travelerresolutions@expediagroup.com>, COLUMBIA STUDENT LIST <PS-MS-STUDENTS@lists.columbia.edu>, info@ivylinecapital.com <info@ivylinecapital.com>, gs-housing@columbia.edu <gs-housing@columbia.edu>, gsdeanofstudents@columbia.edu <gsdeanofstudents@columbia.edu>, gssceboard@columbia.edu <gssceboard@columbia.edu>, gsorientation@columbia.edu <gsorientation@columbia.edu>, gs-admit@columbia.edu <gs-admit@columbia.edu>, gshealthandwellness@columbia.edu <gshealthandwellness@columbia.edu>, gsscelections@columbia.edu <gsscelections@columbia.edu>, gsstudyabroad@columbia.edu <gsstudyabroad@columbia.edu>, gsdosreception@columbia.edu <gsdosreception@columbia.edu>, gsba@lists.columbia.edu <gsba@lists.columbia.edu>, NYSCEF ELECTRONIC PROCESSOR <oca_hd_processor@nycourts.gov>, NYSCEF Resource Center <efile@nycourts.gov>, +15163224896@tmomail.net <+15163224896@tmomail.net>, KINGS COUNTY TAX MATTERS <TaxEfiled@law.nyc.gov>, hidincer@aol.com <hidincer@aol.com>, +15168841083@tmomail.net <+15168841083@tmomail.net>, +15168841084@tmomail.net <+15168841084@tmomail.net>
+> CC: 	WILLIAM.LLERAS2@nypd.org <William.Lleras2@nypd.org>, TRACIE.SHAGIURIGUEN@nypd.org <tracie.shagiuriguen@nypd.org>, Thomas.Meaney@nypd.org <Thomas.Meaney@nypd.org>, TERRANCE.FROEHLICH@nypd.org <TERRANCE.FROEHLICH@nypd.org>, TEJINDER.SINGH@nypd.org <tejinder.singh@nypd.org>, TARA.TIZZIO@nypd.org <TARA.TIZZIO@nypd.org>, TAIMOOR.AHMAD@nypd.org <Taimoor.Ahmad@nypd.org>, Serge.Jean@nypd.org <Serge.Jean@nypd.org>, SEAN.HOGAN@nypd.org <SEAN.HOGAN@nypd.org>, Sean.Aman@nypd.org <Sean.Aman@nypd.org>, RONALD.PERILLO@nypd.org <Ronald.Perillo@nypd.org>, ROBERT.YTURRASPE@nypd.org <Robert.Yturraspe@nypd.org>, ROBERT.PASSERO@nypd.org <ROBERT.PASSERO@nypd.org>, richard.narciso@nypd.org <richard.narciso@nypd.org>, RICHARD.LEE3@nypd.org <richard.lee3@nypd.org>, raul.rodriguez3@nypd.org <raul.rodriguez3@nypd.org>, PETER.MILMORE@nypd.org <PETER.BOYLE@nypd.org>, PAUL.CLARK@nypd.org <PAUL.CLARK@nypd.org>, PATRICK.DOYLE@nypd.org <PATRICK.DOYLE@nypd.org>, oliver.matos@nypd.org <oliver.matos@nypd.org>, Nicholas.Mitchell@nypd.org <Nicholas.Mitchell@nypd.org>, Nicholas.Henry@nypd.org <Nicholas.Henry@nypd.org>, NIBAL.PENA@nypd.org <nibal.pena@nypd.org>, NARINE.RAMLOCHAN@nypd.org <narine.ramlochan@nypd.org>, Miguel.Rivera2@nypd.org <Miguel.Rivera2@nypd.org>, Michelle.Murray@nypd.org <Michelle.Murray@nypd.org>, michael.reilly2@nypd.org <michael.reilly2@nypd.org>, MICHAEL.RACHWALSKI@nypd.org <Michael.Rachwalski@nypd.org>, MICHAEL.CORRADO@nypd.org <MICHAEL.CORRADO@nypd.org>, Max.Solomon@nypd.org <Max.Solomon@nypd.org>, MATTHEW.WHITING@nypd.org <MATTHEW.WHITING@nypd.org>, Mark.Pagano@nypd.org <Mark.Pagano@nypd.org>, MARK.HUNTER@nypd.org <mark.hunter@nypd.org>, marilyn.noa@nypd.org <marilyn.noa@nypd.org>, MARIAN.BENCEA@nypd.org <Marian.Bencea@nypd.org>, LUIS.GOURDINE@nypd.org <LUIS.GOURDINE@nypd.org>, Liam.Moyles3@nypd.org <Liam.Moyles3@nypd.org>, Leonard.Bradley@nypd.org <Leonard.Bradley@nypd.org>, lance.trent@nypd.org <lance.trent@nypd.org>, Lamarr.Barnes@nypd.org <Lamarr.Barnes@nypd.org>, KERRIANN.SMITH@nypd.org <Kerriann.Smith@nypd.org>, KENNETH.FEELEY@nypd.org <kenneth.feeley@nypd.org>, Joseph.Soldano@nypd.org <Joseph.Soldano@nypd.org>, joseph.leonard@nypd.org <joseph.leonard@nypd.org>, JOSEPH.HARTNETT@nypd.org <Joseph.Hartnett@nypd.org>, JOSEPH.ALGERIO@nypd.org <JOSEPH.ALGERIO@nypd.org>, Johnny.Liquori@nypd.org <Johnny.Liquori@nypd.org>, JOHN.TOURLOUKIS@nypd.org <JOHN.TOURLOUKIS@nypd.org>, JOHN.LAMNECK@nypd.org <john.lamneck@nypd.org>, JARREE.JONES@nypd.org <JARREE.JONES@nypd.org>, jarett.dilorenzo@nypd.org <jarett.dilorenzo@nypd.org>, IAB@nypd.org <IAB@nypd.org>, Herbert.Wroten2@nypd.org <Herbert.Wroten2@nypd.org>, HCTF <hctf@nypd.org>, GREGORY.CONLON@nypd.org <GREGORY.CONLON@nypd.org>, GEORGE.KALOGEROPOULOS@nypd.org <GEORGE.KALOGEROPOULOS@nypd.org>, FRANK.ALIPERTI@nypd.org <FRANK.ALIPERTI@nypd.org>, francisco.martireyes@nypd.org <francisco.martireyes@nypd.org>, FLAVIO.CHAUCA@nypd.org <FLAVIO.CHAUCA@nypd.org>, eric.chau@nypd.org <eric.chau@nypd.org>, erdem.ozen@nypd.org <erdem.ozen@nypd.org>, EDWARD.BERGMANN@nypd.org <Edward.Bergmann@nypd.org>, DANIEL.SENDROWSKI@nypd.org <Daniel.Sendrowski@nypd.org>, Daniel.Bavuso@nypd.org <Daniel.Bavuso@nypd.org>, Dajon.Panton@nypd.org <Dajon.Panton@nypd.org>, CONNOR.LISANTE@nypd.org <Connor.Lisante@nypd.org>, CHRISTOPHER.FREDA@nypd.org <CHRISTOPHER.FREDA@nypd.org>, Christophe.Snagg@nypd.org <Christophe.Snagg@nypd.org>, CHRISTOPHE.LEAP@nypd.org <CHRISTOPHE.LEAP@nypd.org>, christina.ortiz@nypd.org <christina.ortiz@nypd.org>, charles.novak@nypd.org <charles.novak@nypd.org>, brian.nelsen@nypd.org <brian.nelsen@nypd.org>, BRIAN.CROOKS@nypd.org <brian.crooks@nypd.org>, anthony.sclafani@nypd.org <anthony.sclafani@nypd.org>, Alyssa.Vogel@nypd.org <Alyssa.Vogel@nypd.org>, ALOYSIUS.SOSIC@nypd.org <aloysius.sosic@nypd.org>, ALEXANDER.CHATEAU@nypd.org <ALEXANDER.CHATEAU@nypd.org>, ALEXANDER.AVDIC@nypd.org <ALEXANDER.AVDIC@nypd.org>, Adam.Riddick@nypd.org <Adam.Riddick@nypd.org>, 90pctyco@nypd.org <90pctyco@nypd.org>, 90pctdvo@nypd.org <90pctdvo@nypd.org>, 23pctyco@nypd.org <23pctyco@nypd.org>, 23pctdvo@nypd.org <23pctdvo@nypd.org>, 23pctdvo@nypd.com <23pctdvo@nypd.com>, 19pctyco@nypd.org <19pctyco@nypd.org>, 19pctdvo@nypd.org <19pctdvo@nypd.org>, 18pctyco@nypd.org <18pctyco@nypd.org>, 18pctdvo@nypd.org <18PCTDVO@nypd.org>, 17pctyco@nypd.org <17pctyco@nypd.org>, 17pctdvo@nypd.org <17pctdvo@nypd.org>, 14pctyco@nypd.org <14pctyco@nypd.org>, 14pctdvo@nypd.org <14pctdvo@nypd.org>, 10pctyco@nypd.org <10pctyco@nypd.org>, 10pctdvo@nypd.org <10pctdvo@nypd.org>, 1pctyco@nypd.org <1pctyco@nypd.org>, 1pctdvo@nypd.org <1pctdvo@nypd.org>, THOMAS.WARD2@nypd.org <THOMAS.WARD2@nypd.org>, KEVON.SAMPLE@nypd.org <KEVON.SAMPLE@nypd.org>, CONOR.KUBIC@nypd.org <CONOR.KUBIC@nypd.org>
+
+
+
 [WILSON-ELSER-STATEFARM-SULLIVAN-ZUCKER_FEDERAL-USE-AND-DISTRIBUTION-ONLY](https://saaze2311prdsra.blob.core.windows.net/clean/63e7e5c65409ed1182e5000d3a98e815/Re%20[location]%201253%20EST%20AUGUST%204TH%20CONFIRMATION.pdf)
 
 
