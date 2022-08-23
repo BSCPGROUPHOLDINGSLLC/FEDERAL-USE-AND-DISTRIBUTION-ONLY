@@ -1,5 +1,43 @@
 #### THIS PAGE IS BEING MONITORED BY SEVERAL DEPARTMENTS AS PART OF A FEDERAL BANK AND [SECURITIES FRAUD INVESTIGATION.](https://www.youtube.com/watch?v=0EnOhpMRgwg)
 
+
+From: Baris Dincer
+Sent: Tuesday, August 23, 2022 4:25 PM
+To: DoIT Announcements; inbox@livekelly.com; customerservice@seahawks.com; ESPNFRONTROW@ESPN.COM; Mens Tennis; ferrigknow@yahoo.com; helpdesk@nysd.uscourts.gov
+Cc: Womens Tennis; Catherine Alves; Brandon Fieland; Michael Williams; Deanna Sannuti; Roxanne Laraia; Ryan Hyland; Erin Layton; Thomas Doherty; Ajani Clunie; Justin Stewart-Mathews; Lynda Day; Steven Speedling; Gerard W Bryant; Gabriela Leal; Brandon Fieland; Ajani Clunie; Steven Speedling; Jonathan Perez; Dylan Laudano; Ryan Hyland; Wade Kornegay; Lynda Day; Eric Schrick; Rifle JJ; Zade Haobsh; Erin Layton; Womens Swimming; Jane Katz; Leszek Stankiewicz
+Subject: Re: I can't believe they are considering another retractable roof ?? + WHAT?? HEY TENNIS, SPORTS INNOVATIONS ARE FOR EVERYONE HERE.
+ 
+heres a new group, they all belong in prison from earlier...
+just like CIK filer 93715 into CIK filer 1516523, LETS give the FBI a head start this time ok??
+§4. Misprision of felony
+        Whoever, having knowledge of the actual commission of a felony cognizable by a court of the United States, conceals and does not as soon as possible make known the same to some judge or other person in civil or military authority under the United States, shall be fined under this title or imprisoned not more than three years, or both.
+
+Filing User Shari Laskowitz | slaskowitz@ingramllp.com | 2129079600
+
+150 East 42nd Street 19th Floor, New York, NY 10017
+Filed: 07/21/2020
+
+[NYSCEF INDEX NO. 153974/2020]
+
+# VIOLATION OF PRIVACY AND BREACH OF DUTIES
+FILED: NEW YORK COUNTY CLERK 07/21/2020 04:17 AM &nbsp;&nbsp;&nbsp;&nbsp;* * * * * NYSCEF CASE: 153974/2020 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; * * * * * &nbsp;&nbsp;&nbsp;&nbsp; DOC. NO. 77
+<br> https://iapps.courts.state.ny.us/nyscef/ViewDocument?docIndex=E0CKxALt/dD_PLUS_Wk3Z8vuaXQ==
+
+<br> Confirmation Notice to all Material Parties ( was redistributed ) by and between the counselors as seen in the circulation of <Video.mov> files without consent.
+
+https://iapps.courts.state.ny.us/nyscef/ConfirmationNotice?docId=E0CKxALt/dD_PLUS_Wk3Z8vuaXQ==
+
+[2/16/2022 11:57 PM](https://github.com/BSCPGROUPHOLDINGSLLC/ELSER-AND-DICKER/files/8608620/000000000000000000000000000000000000000000000.pdf)
+
+*** SOMEONE ALSO HAD A PROBLEM WITH THE EMAIL ADDRESS  --- AND HAD IT DEACTIVATED.
+
+[ASHLEY.HUMPHRIES@WILSONELSER.COM](https://github.com/BSCPGROUPHOLDINGSLLC/ELSER-AND-DICKER/files/8608609/24.JAN.2022.-.ASHLEY.HUMPHRIES.YUZERS.pdf)
+
+FILED IN NYSCEF MATTER 153974/2020
+
+
+
+
 [WILSON-ELSER-STATEFARM-SULLIVAN-ZUCKER_FEDERAL-USE-AND-DISTRIBUTION-ONLY](https://saaze2311prdsra.blob.core.windows.net/clean/63e7e5c65409ed1182e5000d3a98e815/Re%20[location]%201253%20EST%20AUGUST%204TH%20CONFIRMATION.pdf)
 
 
